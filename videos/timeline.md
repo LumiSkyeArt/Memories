@@ -1,7 +1,6 @@
-# Mayo 2026
+--- mayo 2026 ----
 
 ## 10 de mayo
-
 ### Explosión ultra sónica de confeti
 
-[Video: ./confetiExplosivo.mp4](confetiExplosivo.mp4)
+[Ver video](https://youtube.com/shorts/it9Zk1cy5Sk?feature=share)
